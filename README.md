@@ -4,7 +4,7 @@ Hunting for Data Dive coupon codes to slash your Amazon seller tools budget? You
 
 [![DataDive Discount Coupon 2](https://res.cloudinary.com/drzqec0oi/image/upload/v1747041914/DataDive_Discount_Coupon_2_skg6ix.jpg)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
 
-[👉 Click here to claim your 20% OFF with AMZNINJA](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
+[![Click here to claim your 20% OFF with AMZNINJA](https://res.cloudinary.com/drzqec0oi/image/upload/v1747043814/Click_here_to_claim_your_20_OFF_with_AMZNINJA_fejxky.png)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
 
 ## What is Data Dive? Amazon Seller's Secret Weapon
 
@@ -164,4 +164,7 @@ The verdict is clear: Data Dive delivers the goods for serious Amazon sellers. W
 Click our special [Data Dive discount link](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA), apply coupon code "AMZNINJA", and start dominating Amazon with data-driven decisions.  
 Your wallet (and your sales charts) will thank you!
 
+[![DataDive Discount Coupon 3](https://res.cloudinary.com/drzqec0oi/image/upload/v1747041914/DataDive_Discount_Coupon_3_n5hj1g.jpg)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
+
+[![Claim your 20% Discount Coupon Today](https://res.cloudinary.com/drzqec0oi/image/upload/v1747043814/Claim_your_20_Discount_Coupon_Today_gipozw.png)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
 
