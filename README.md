@@ -2,6 +2,8 @@
 
 Hunting for Data Dive coupon codes to slash your Amazon seller tools budget? You're in luck! Get a whopping 20% discount on all Data Dive plans with our exclusive **"AMZNINJA"** coupon code. This verified May 2025 offer works on Starter, Standard, and Enterprise plans—bringing your cost down to just **$31.20/month** for the basic package. Why pay full price when you can save up to **$980 yearly** on advanced plans? Better yet, combine our 20% coupon with Data Dive's 16% annual discount for a massive **33% total savings**—plus get **2 months completely FREE** with yearly subscriptions! Whether you're launching your first Amazon product or scaling your FBA empire, this Data Dive promo code gives your bottom line an instant boost.
 
+[![DataDive Discount Coupon 2](https://res.cloudinary.com/drzqec0oi/image/upload/v1747041914/DataDive_Discount_Coupon_2_skg6ix.jpg)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
+
 👉 **[Click here to claim your 20% OFF with AMZNINJA](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)**
 
 ---
