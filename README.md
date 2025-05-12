@@ -112,6 +112,8 @@ Good news! While not widely advertised, there's a **special 15-day free trial** 
 
 After the trial, apply **AMZNINJA** to save 20% on any plan.
 
+[![DataDive Discount Coupon 6](https://res.cloudinary.com/drzqec0oi/image/upload/v1747041913/DataDive_Discount_Coupon_6_vb1hss.jpg)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
+
 ---
 
 ## Is Data Dive Worth It Even After the Discount?
