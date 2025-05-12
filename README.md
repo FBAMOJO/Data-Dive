@@ -34,6 +34,8 @@ Before dropping your hard-earned cash, let's break down exactly what Data Dive c
 | Standard   | $149             | $1,490 ($124/mo)       | $119.20                      | $1,192 ($99/mo)             | $298–$357.60             |
 | Enterprise | $490             | $4,900 ($408/mo)       | $392                         | $3,920 ($326/mo)            | $980–$1,176              |
 
+[![DataDive Discount Coupon 4](https://res.cloudinary.com/drzqec0oi/image/upload/v1747041914/DataDive_Discount_Coupon_4_awlekz.jpg)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
+
 ---
 
 ## Score the Ultimate 33% Discount: Double-Dip Savings Hack
