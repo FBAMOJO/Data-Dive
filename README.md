@@ -156,6 +156,8 @@ Not sure which plan fits your business? Here's the quick breakdown:
 
 Start small—scale later. Most sellers begin with **Starter** and upgrade as they grow.
 
+[![DataDive Discount Coupon 5](https://res.cloudinary.com/drzqec0oi/image/upload/v1747041914/DataDive_Discount_Coupon_5_oclktp.jpg)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
+
 ---
 
 ## Frequently Asked Questions About Data Dive Discounts
@@ -180,6 +182,8 @@ Yes—via your account dashboard.
 ## 🎯 Grab Your Data Dive Discount Today — Save 20% Now!
 
 Don't miss out—get **20% OFF** Data Dive with **AMZNINJA** today! Combine it with the 16% annual discount to save a total of **33%**, PLUS 2 months FREE.
+
+[![DataDive Discount Coupon 3](https://res.cloudinary.com/drzqec0oi/image/upload/v1747041914/DataDive_Discount_Coupon_3_n5hj1g.jpg)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
 
 👉 **[Claim Your Discount Now](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)**
 
