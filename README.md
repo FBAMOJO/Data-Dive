@@ -83,6 +83,8 @@ Feed it your keywords, and watch as it crafts listing copy that sells. Example:
 
 Track how your products (and competitors’) rank for key terms. Spot ranking drops early and fix issues before sales tank.
 
+[![DataDive Discount Coupon 1](https://res.cloudinary.com/drzqec0oi/image/upload/v1747041913/DataDive_Discount_Coupon_1_b08z8a.jpg)](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)
+
 ---
 
 ## How to Apply the Data Dive Coupon Code (Easy Steps)
