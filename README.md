@@ -161,7 +161,7 @@ Don't miss your chance to slash 20% off Data Dive's powerful Amazon seller tools
 The verdict is clear: Data Dive delivers the goods for serious Amazon sellers. With its keyword research superpowers, listing optimization tools, and competitor tracking capabilities, it's the unfair advantage smart sellers use to stay ahead of the pack.
 
 **Ready to supercharge your Amazon business while keeping more profits?**  
-[Click our special Data Dive discount link, apply coupon code "AMZNINJA", and start dominating Amazon with data-driven decisions.](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA)  
+Click our special [Data Dive discount link](https://2.datadive.tools/subscription/subscribe?ref=mtzkmjk&coupon=AMZNINJA), apply coupon code "AMZNINJA", and start dominating Amazon with data-driven decisions.  
 Your wallet (and your sales charts) will thank you!
 
 
